@@ -1,7 +1,7 @@
 'Soccer Managing Tool'
   Made By Jeffery Fan(Main)
 
-Want more people to join making the app.
+Want to join making the app.
   ?Interested :Email to jijeapps@gmail.com
   Write down what part are you doing. And how much programming experience do you have.
 
