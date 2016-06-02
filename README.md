@@ -9,3 +9,5 @@ Want to join making the app.
 
 We are still making the app!!!!
   Loading............          Last Update:12:45 PM, May 31, 2016
+
+中国人主动加qq：2987662122（交个朋友也好。。。。666666666666）
